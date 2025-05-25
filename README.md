@@ -1,0 +1,2 @@
+# kazanc
+Kazancın Gerçek Adresi
